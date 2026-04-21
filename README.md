@@ -28,7 +28,7 @@ Court Essentials Kit – All-in-one bundle
 💡 Apply PBDEALS50 to maximize your discount.
 
 💡 How to Use 11six24 Coupon Code
-Visit 👉 https://11six24.com
+Visit 👉 https://11six24.shop
 Add your favorite products to cart
 Enter code PBDEALS50 at checkout
 Enjoy up to 50% OFF instantly
